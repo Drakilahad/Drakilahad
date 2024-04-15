@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ Dr Akil Ahad
+- 🌱 I’m currently learning Fire Fighting Techniques 
+- 📫 How to reach me +8801742345678
